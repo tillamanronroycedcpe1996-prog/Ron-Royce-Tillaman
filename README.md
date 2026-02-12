@@ -2,7 +2,7 @@
 
 ## 💻 Computer Engineering Student
 
-I am a 4th year Computer Engineering student at Western Institute of Technology. I Love traveling to Beaches, Mountains and any place that have a great views. I also love playing Volleyball and Arts, like paintings and Drawing.
+I am a 4th year Computer Engineering student at Western Institute of Technology. I Love traveling to the Beaches, Mountains and any place that have a great views. I also love playing Volleyball and Arts, like paintings and Drawing.
 ---
 
 📍 Based in Iloilo, Philippines  
